@@ -1,9 +1,15 @@
 ### Olá eu sou lz 👋
+
 ##Apaixonado por uma morena 💓
+
 ##Beginner on JS🖥️
+
 ##Beginner on C#🖥️
+
 #Expert on Lua🖥️
+
 ##Discord : Lz.#7504🖥️
+
 ##I love 🏀 and 🏐
 
 <div align="center">
