@@ -4,13 +4,14 @@
 
 ##Beginner on JS🖥️
 
-##Beginner on C#🖥️
+##intermediary on C#🖥️
 
 #Expert on Lua🖥️
 
 ##Discord : Lz.#7504🖥️
 
-##I love 🏀 and 🏐
+##I love 🏀
+
 
 <div align="center">
   <a href="https://github.com/davidluiz91">
