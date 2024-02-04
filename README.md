@@ -1,16 +1,8 @@
-### Olá eu sou lz 👋
-
 ##Apaixonado por uma morena 💓
-
-##Beginner on JS🖥️
-
 ##intermediary on C#🖥️
+#intermediaryon Luau🖥️
+##Discord : lzkkkkz
 
-#Expert on Lua🖥️
-
-##Discord : Lz.#7504🖥️
-
-##I love 🏀
 
 
 <div align="center">
